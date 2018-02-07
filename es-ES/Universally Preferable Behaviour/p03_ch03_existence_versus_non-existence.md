@@ -303,63 +303,63 @@ In reality, when I am told that I must pay my taxes to “the government,” wha
 
 At no point whatsoever does any such entity as “the government” lift a finger, make a move, open a bank account, or spend a penny. Imagining that a concept called “the government” has the capacity to take or spend your money is exactly the same as waiting for “God” to come and pick you up and take you to church.
 
-Thus the real interaction is that one guy sends me a letter telling me that I owe him money. I have no contract with this guy, and he does not in fact own any of my property, although some other guys wrote a supposed “contract” which claims that he does.
+Así que la verdadera interacción es que un tipo me envía una carta diciéndome que le debo dinero. No tengo ningún contrato con este tipo, y de hecho no posee ninguna de mis propiedades, aunque algunos otros tipos escribieron un supuesto "contrato" que dice que sí.
 
-If I do not pay this guy, he will send another guy over to my house to collect the money – plus “interest” and “charges.”
+Si no le pago a este tipo, enviará a otro a mi casa para cobrar el dinero - más "intereses" y "cargos".
 
-Normally, when a man with a gun comes to my house and demands my money, I have the right to use force to defend myself. In this case, however, because he is in a costume and claims to represent a fictional entity, I am not allowed to use force to defend myself.
+Normalmente, cuando un hombre con una pistola viene a mi casa y exige mi dinero, tengo el derecho de usar la fuerza para defenderme. En este caso, sin embargo, debido a que está uniformado y dice representar una entidad ficticia, no se me permite usar la fuerza para defenderme.
 
-Now, if I come to your house tonight dressed as a “high elf of Narnia” and demand the money that you owe to the “Queen of Sorrows,” assuming it is not Halloween, you are allowed to stare at me in amazement, and order me off your property.
+Ahora, si vengo a tu casa esta noche vestido como un "alto elfo de Narnia" y demando el dinero que le debes a la "Reina de los Dolores", asumiendo que no es Halloween, se te permite mirarme con asombro, y ordenarme que salga de tu propiedad.
 
-If I do not pay the man who comes to take my money, he is allowed to pull out a gun, point it at my chest, and kidnap me – or shoot me if I resist. He can hold me in a tiny cell for year after year, where I will be subjected to the most violent brutality and continual rape, until he chooses to let me go.
+Si no le pago al hombre que viene a tomar mi dinero, se le permite sacar un arma, apuntarla a mi pecho, y secuestrarme - o dispararme si me resisto. Él puede retenerme en una celda diminuta año tras año, donde seré sometido a la brutalidad más violenta y a una violación continua, hasta que elija dejarme ir.
 
-Interestingly, if a man legitimately owes me money, I am not allowed to kidnap him and subject him to torture and rape for year after year. Thus taxation utterly violates the UPB framework, since it is the violent transfer of property using the initiation of force.
+Curiosamente, si un hombre me debe dinero legítimamente, no se me permite secuestrarlo y someterlo a tortura y violación año tras año. Así pues, la tributación viola completamente el marco del CUP, ya que es la transferencia violenta de bienes mediante el uso de la fuerza.
 
-Stealing, as we have proven, is evil.
+Robar, como hemos demostrado, es malo.
 
-Einstein revolutionised physics by claiming – and proving – that the speed of light was constant.
+Einstein revolucionó la física afirmando - y demostrando - que la velocidad de la luz era constante.
 
-We can revolutionise the world by accepting the claim – and the proof – that stealing is always evil.
+Podemos revolucionar el mundo aceptando la afirmación - y la prueba - de que robar siempre es malo.
 
-### Government, Religion, And UPB
+### Gobierno, religión y CUP
 
-When we take the UPB framework and apply it to moral propositions regarding government and religion, some very interesting results occur.
+Cuando tomamos el marco de trabajo del CUP y lo aplicamos a proposiciones morales sobre gobierno y religión, ocurren algunos resultados muy interesantes.
 
-The proposition that is most often used to justify government power is: “the government has the right to take your money.” This, however, is an utterly imprecise and false statement. The “government” does not have the right to take your money, since “the government” is merely a concept, an abstract description for a self-defined group of people. UPB requires a more consistent and objective statement. Since moral rules must be the same for everyone in all places and at all times, we must rephrase the rule in this way:
+La proposición que se usa más a menudo para justificar el poder del gobierno es: "el gobierno tiene el derecho de tomar tu dinero". Sin embargo, se trata de una afirmación totalmente imprecisa y falsa. El "gobierno" no tiene el derecho de tomar tu dinero, ya que "el gobierno" es simplemente un concepto, una descripción abstracta para un grupo de personas definido por uno mismo. El CUP requiere una declaración más coherente y objetiva. Puesto que las reglas morales deben ser las mismas para todos en todos los lugares y en todo momento, debemos reformular la regla de esta manera:
 
-“*Human beings can morally take money from other human beings if they make up a conceptual agency that justifies their actions.*”
+"*Los seres humanos pueden moralmente tomar dinero de otros seres humanos si crean una agencia conceptual que justifique sus acciones.*”
 
-If we return to Bob and Doug in our little room of moral experimentation, we can very quickly see that this becomes an impossible proposition.
+Si volvemos a Bob y Doug en nuestra pequeña sala de experimentación moral, podemos ver muy rápidamente que esto se convierte en una proposición imposible.
 
-If Bob says to Doug: “I now represent the ideal concept ‘FUBAR,’ which fully justifies me taking your lighter from you. Since you now owe me your lighter, you must hand it over, or I will be compelled to take it from you by force.”
+Si Bob le dice a Doug:"Ahora represento el concepto ideal 'FUBAR,' que justifica plenamente que te quite tu encendedor. Ya que ahora me debes tu encendedor, debes entregarlo, o me veré obligado a quitártelo por la fuerza."
 
-What will Doug’s reaction be? Remember, according to UPB, whatever is valid for Bob must also be valid for Doug. Inevitably, Doug will reply: “Oh yeah? Well *I* now represent the ideal concept ‘ANTI-FUBAR,’ which fully justifies me retaining possession of my lighter. Since you now have no right to take my lighter, if you try to take it, I will be compelled to defend myself by force.”
+¿Cuál será la reacción de Doug? Recuerda, según CUP, lo que sea válido para Bob también debe ser válido para Doug. Inevitablemente, Doug responderá:"¿Ah, sí? Bueno *Yo* ahora represento el concepto ideal "ANTI-FUBAR", que justifica plenamente que conserve la posesión de mi encendedor. Ya que ahora no tienes derecho a tomar mi encendedor, si tratas de tomarlo, me veré obligado a defenderme por la fuerza."
 
-As you can see, if *Bob* has the right to make up imaginary obligations and impose them on Doug, then *Doug* has the right to make up imaginary obligations and impose them on Bob. Clearly, we immediately end up in a perfect stalemate. If it is morally good to impose made-up obligations on other people, but it is impossible to do it if *everyone* possesses that ability, then morality becomes impossible. The only way that Bob can impose his made-up obligation on Doug is if Doug refuses to impose his made up obligation on Bob – thus we have a situation where what is moral for one person can only be achieved by the other person acting in an anti-moral manner. Virtue can thus only be enabled by vice, which is impossible – and we have opposing moral rules for two human beings in the same circumstance, which UPB instantly rejects as invalid.
+Como puedes ver, si *Bob* tiene el derecho de inventar obligaciones imaginarias e imponerlas a Doug, entonces *Doug* tiene el derecho de inventar obligaciones imaginarias e imponerlas a Bob. Claramente, inmediatamente terminamos en un estancamiento perfecto. Si es moralmente bueno imponer obligaciones inventadas a otras personas, pero es imposible hacerlo si *todos* poseen esa habilidad, entonces la moralidad se vuelve imposible. La única manera en que Bob puede imponer su obligación inventada a Doug es si Doug se niega a imponer su obligación inventada a Bob - por lo tanto, tenemos una situación en la que lo que es moral para una persona sólo puede ser alcanzado por la otra persona que actúa de una manera contraria a la moral. Por lo tanto, la virtud sólo puede ser habilitada por el vicio, lo cual es imposible - y tenemos reglas morales opuestas para dos seres humanos en la misma circunstancia, que CUP rechaza instantáneamente como inválidas.
 
-In other words, every imaginary abstract justification for the use of force can be countered by another imaginary abstract justification for the use of force. If I have an imaginary friend that can justify everything I do, then *you* also can have an imaginary friend that can justify everything you do. Thus neither of us can possess the ability to impose our imaginary obligations on others.
+En otras palabras, toda justificación abstracta imaginaria del uso de la fuerza puede ser contrarrestada por otra justificación abstracta imaginaria del uso de la fuerza. Si tengo un amigo imaginario que puede justificar todo lo que hago, entonces *tú* también puedes tener un amigo imaginario que puede justificar todo lo que haces. Por lo tanto, ninguno de nosotros puede poseer la habilidad de imponer nuestras obligaciones imaginarias a otros.
 
-#### Religion And UPB
+#### Religión Y CUP
 
-The same holds true for religion.
+Lo mismo vale para la religión.
 
-The statement: “You must obey me because God commands it,” must be restated more accurately as: “an entity that I have made up commands you to obey me.” The principle that UPB requires, then, is: “Human beings must impose unchosen positive obligations on others, and justify those obligations according to imaginary entities.”
+La declaración: "Debes obedecerme porque Dios lo ordena," debe ser reafirmada con más precisión como: "una entidad que he creado te ordena que me obedezcas." El principio que el CUP exige, entonces, es:"El ser humano debe imponer a los demás obligaciones positivas no elegidas y justificarlas según entidades imaginarias".
 
-Here we see the same issues as above. Bob tells Doug: “You must give me your lighter, because my imaginary friend tells you to.” Naturally, Doug replies: “You must not ask me for your lighter, because *my* imaginary friend forbids you to.” If Bob’s “commandments” are valid, then Doug’s “commandments” are equally valid, and so cancel each other out.
+Aquí vemos los mismos problemas de arriba. Bob le dice a Doug: "Debes darme tu encendedor, porque mi amigo imaginario te lo dice." Naturalmente, Doug responde:"No debes pedirme tu encendedor, porque *mi* amigo imaginario te lo prohíbe." Si los "mandamientos" de Bob son válidos, entonces los "mandamientos" de Doug son igualmente válidos, y así se cancelan entre sí.
 
-In the same way, if a man claims that his concept called “the government” justifies his theft of my property, then I can claim that my concept called “the anti-government” justifies my *retention* of my property, and we are both equally “valid” in our justifications.
+De la misma manera, si un hombre afirma que su concepto llamado "el gobierno" justifica el robo de mi propiedad, entonces puedo afirmar que mi concepto llamado "el antigobierno" justifica mi *retención* de mi propiedad, y ambos somos igualmente "válidos" en nuestras justificaciones.
 
-If this tax collector then claims that his concept called “the government” only justifies his theft of *my* property, not my retention of it, then we are no further ahead. He can take my thousand dollars, but then I can invoke my concept to “steal” that money back, and his moral theory commands us to spend the rest of eternity handing back and forth the thousand dollars.
+Si este recaudador de impuestos entonces afirma que su concepto llamado "el gobierno" sólo justifica el robo de *mi* propiedad, no mi retención de ella, entonces no estamos adelantados. Él puede tomar mis mil dólares, pero entonces puedo invocar mi concepto de "robar" ese dinero, y su teoría moral nos ordena que pasemos el resto de la eternidad entregando los mil dólares.
 
-#### UPB And "The Majority"
+#### CUPB y "La Mayoría"
 
-UPB does not allow for the accumulation of individuals to override or reverse the properties of each individual. Ten lions do not make an elephant, a government, or a god. Ten thousand soldiers might make an “army,” but they cannot reverse gravity, or make murder moral.
+CUP no permite la acumulación de individuos para anular o revertir las propiedades de cada individuo. Diez leones no hacen un elefante, un gobierno o un dios. Diez mil soldados podrían formar un "ejército", pero no pueden revertir la gravedad, o hacer que el asesinato sea moral.
 
-Returning one last time to the room of Bob and Doug, let’s introduce “Jane.”
+Volviendo por última vez a la habitación de Bob y Doug, presentamos a "Jane".
 
-Now that there are three people in the room, we can look at the “majority rule” principle.
+Ahora que hay tres personas en la sala, podemos observar el principio de la "regla de la mayoría".
 
-If Bob, Doug and Jane take a “vote” on whether or not it is moral to rape Jane, we would all recoil at such an unjust and immoral premise. Clearly, even if Jane were “outvoted,” we would not consider the resulting rape to be transformed into a morally good act.
+Si Bob, Doug y Jane hacen una "votación" sobre si es moral o no violar a Jane, todos nos retractaríamos ante una premisa tan injusta e inmoral. Claramente, incluso si Jane fuera "vencida", no consideraríamos que la violación resultante se transforme en un acto moralmente bueno.
 
 Why not?
 
